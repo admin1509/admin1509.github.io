@@ -1,1 +1,1 @@
-##### ![[image](https://user-images.githubusercontent.com/75318518/141867101-8efefdf9-facb-4c44-9451-3dc3a697597b.png)]()[Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ]()
+##### [![image](https://user-images.githubusercontent.com/75318518/141867534-ab0ed77b-2c63-415e-9ea4-880028b8100b.png)](https://admin1509.github.io/tv.zing.vn/tsuujou-kougeki-ga-zentai-kougeki-choi-game-cung-me/)[Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ](https://admin1509.github.io/tv.zing.vn/tsuujou-kougeki-ga-zentai-kougeki-choi-game-cung-me/)

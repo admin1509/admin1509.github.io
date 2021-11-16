@@ -3,6 +3,7 @@
 
 ###### [`Tập 1`](https://bitly.com/3Cmyoeu)
 ###### [`Tập 2 - 3`](https://bitly.com/3Flwe0U)
+###### [`Tập 4`](https://bitly.com/3Cn4DKJ)
 
 ##### ![image](https://user-images.githubusercontent.com/75318518/141922087-36306ae6-4847-42fe-bbe0-a8bf4ad521b1.png)Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ
 

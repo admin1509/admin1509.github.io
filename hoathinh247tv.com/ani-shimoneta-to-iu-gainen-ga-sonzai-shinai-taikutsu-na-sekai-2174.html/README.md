@@ -1,11 +1,11 @@
 # [![Hoathinh247](https://user-images.githubusercontent.com/75318518/141947432-f818d463-e399-4827-9d0d-1c5385968d8e.png)](https://admin1509.github.io/hoathinh247tv.com/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
-###### [`Tập 1`](https://bitly.com/3wP31YW)
-###### [`Tập 2`](https://bitly.com/3osjvCC)
-###### [`Tập 3`](https://bitly.com/3Hqso8i)
-###### [`Tập 4`](https://bitly.com/3Fcd39E)
-###### [`Tập 5`](https://bitly.com/2YVJ1HO)
+###### [`Tập 1`](https://bitly.com/30ssJ9s)
+###### [`Tập 2`](https://bitly.com/3osnhvM)
+###### [`Tập 3`](https://bitly.com/30tHv0m)
+###### [`Tập 4`](https://bitly.com/3Fo3nZx)
+###### [`Tập 5`](https://bitly.com/3wRSImZ)
 ###### [`Tập 6`]
 ###### [`Tập 7`]
 ###### [`Tập 8`]

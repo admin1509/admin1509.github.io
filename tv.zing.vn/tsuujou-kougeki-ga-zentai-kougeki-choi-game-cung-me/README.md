@@ -1,3 +1,4 @@
+# [![Zing TV](https://user-images.githubusercontent.com/75318518/141922728-e5ee6dc8-2db6-4d50-923c-abd08fb7c970.png)](https://admin1509.github.io/tv.zing.vn/)[Zing TV](https://admin1509.github.io/tv.zing.vn/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
 ##### ![image](https://user-images.githubusercontent.com/75318518/141922087-36306ae6-4847-42fe-bbe0-a8bf4ad521b1.png)Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ

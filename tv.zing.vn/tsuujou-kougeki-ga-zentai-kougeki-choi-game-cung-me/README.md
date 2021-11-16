@@ -5,7 +5,7 @@
 ###### [`Tập 2 - 3`](https://bitly.com/3Flwe0U)
 ###### [`Tập 4`](https://bitly.com/3Cn4DKJ)
 ###### [`Tập 5`](https://bitly.com/3HjAGyO)
-###### [`Tập 6`]
+###### [`Tập 6`](https://bitly.com/3owHzV0)
 ###### [`Tập 7`]
 ###### [`Tập 8`]
 ###### [`Tập 9`]

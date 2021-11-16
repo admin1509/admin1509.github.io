@@ -10,7 +10,7 @@
 ###### [`Tập 8`](https://bitly.com/3njsLcK)
 ###### [`Tập 9`](https://bitly.com/3FqoJpv)
 ###### [`Tập 10`](https://bitly.com/3HqnBE8)
-###### [`Tập 11`]
+###### [`Tập 11`](https://bitly.com/2YQsjtj)
 ###### [`Tập 12`]
 ###### [`OVA`]
 

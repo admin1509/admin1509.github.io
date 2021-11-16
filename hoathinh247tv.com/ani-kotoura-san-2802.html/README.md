@@ -15,8 +15,6 @@
 ###### [`Tập 12`](https://bitly.com/3ceQowT)
 
 ##### ![1625129353-kotoura-san-f150](https://user-images.githubusercontent.com/75318518/141957492-1963f7c4-08c9-4076-aaad-7b35623865d3.jpg)
-##### Kotoura-san - Cuộc Đời Đầy Rắc Rối Của Kotoura
-
-#### Tag: `Kotoura-san`, `The Troubled Life of Miss Kotoura`, `Cuộc Đời Đầy Rắc Rối Của Kotoura`
-#### Thể loại: `Anime`, `Hoạt Hình`, `Học đường`, `Hài hước`, `Tình cảm`
-#### Kotoura Haruka là một cô bé 15 tuổi, có khả năng đọc được suy nghĩ của người khác. Do khả năng đặc biệt đó của mình, Kotoura đã gây ra nhiều rắc rối, hậu quả là ba mẹ cô phải ly dị. Cô bé phải chuyển trường nhưng vẫn xa lánh bạn cùng lớp. Manabe Yoshihisa, một trong những người bạn cùng lớp, đã thừa nhận và cảm kích khả năng của cô bé. Thế là Kotoura bắt đầu kết bạn với sự giúp đỡ của Manabe.
+##### Kotoura-san
+###### `80%` (4 lượt, đánh giá: 8 trên 10)
+###### ![image](https://user-images.githubusercontent.com/75318518/141958051-0550a1f0-fb55-4a9c-beca-08cbfc64eb9a.png)

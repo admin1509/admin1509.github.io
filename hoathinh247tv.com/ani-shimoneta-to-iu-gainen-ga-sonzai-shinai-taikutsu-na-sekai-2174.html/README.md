@@ -5,7 +5,7 @@
 ###### [`Tập 2 Bitmovin`](https://bitly.com/3osnhvM) - [`Tập 2 HDPlay`](https://bitly.com/3osjvCC)
 ###### [`Tập 3 Bitmovin`](https://bitly.com/30tHv0m) - [`Tập 3 HDPlay`](https://bitly.com/3Hqso8i)
 ###### [`Tập 4 Bitmovin`](https://bitly.com/3Fo3nZx) - [`Tập 4 HDPlay`](https://bitly.com/3Fcd39E)
-###### [`Tập 5 Bitmovin`](https://bitly.com/3wRSImZ) - [`Tập 5 HDPlay`]()
+###### [`Tập 5 Bitmovin`](https://bitly.com/3wRSImZ) - [`Tập 5 HDPlay`](https://bitly.com/2YVJ1HO)
 ###### [`Tập 6 Bitmovin`](https://bitly.com/3qFBxnw) - [`Tập 6 HDPlay`]()
 ###### [`Tập 7 Bitmovin`](https://bitly.com/3wR9gLN) - [`Tập 7 HDPlay`]()
 ###### [`Tập 8 Bitmovin`]() - [`Tập 8 HDPlay`]()

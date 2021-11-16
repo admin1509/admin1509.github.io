@@ -1,3 +1,5 @@
+#### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
+
 ##### ![image](https://user-images.githubusercontent.com/75318518/141922087-36306ae6-4847-42fe-bbe0-a8bf4ad521b1.png)Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ
 
 Tag: Tsuujou Kougeki ga Zentai Kougeki de Ni-kai Kougeki no Okaasan wa Suki Desu ka, Chơi Game Cùng Mẹ, Do You Like Your Mom? Her Normal Attack is Two Attacks at Full Power, Okaasan online

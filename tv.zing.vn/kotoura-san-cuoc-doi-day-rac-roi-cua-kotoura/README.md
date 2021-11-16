@@ -1,8 +1,9 @@
 # [![Zing TV](https://user-images.githubusercontent.com/75318518/141922817-7aaa752a-6880-4c79-87f1-5ad01bdda715.png)](https://admin1509.github.io/tv.zing.vn/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
-###### [`Tập 1`]
-###### [`Tập 2 - 3`]
+###### [`Tập 1`](https://bitly.com/3cgzBcN)
+###### [`Tập 2`]
+###### [`Tập 3`]
 ###### [`Tập 4`]
 ###### [`Tập 5`]
 ###### [`Tập 6`]

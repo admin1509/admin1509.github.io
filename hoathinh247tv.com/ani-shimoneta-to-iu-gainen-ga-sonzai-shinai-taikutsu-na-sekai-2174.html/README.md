@@ -8,11 +8,11 @@
 ###### [`Tập 5 Bitmovin`](https://bitly.com/3wRSImZ) - [`Tập 5 HDPlay`]()
 ###### [`Tập 6 Bitmovin`](https://bitly.com/3qFBxnw) - [`Tập 6 HDPlay`]()
 ###### [`Tập 7 Bitmovin`](https://bitly.com/3wR9gLN) - [`Tập 7 HDPlay`]()
-###### [`Tập 8 Bitmovin`] - [`Tập 8 HDPlay`]()
-###### [`Tập 9 Bitmovin`] - [`Tập 9 HDPlay`]()
-###### [`Tập 10 Bitmovin`] - [`Tập 10 HDPlay`]()
-###### [`Tập 11 Bitmovin`] - [`Tập 11 HDPlay`]()
-###### [`Tập 12 Bitmovin`] - [`Tập 12 HDPlay`]()
+###### [`Tập 8 Bitmovin`]() - [`Tập 8 HDPlay`]()
+###### [`Tập 9 Bitmovin`]() - [`Tập 9 HDPlay`]()
+###### [`Tập 10 Bitmovin`]() - [`Tập 10 HDPlay`]()
+###### [`Tập 11 Bitmovin`]() - [`Tập 11 HDPlay`]()
+###### [`Tập 12 Bitmovin`]() - [`Tập 12 HDPlay`]()
 
 ##### ![1625071498-shimoneta-to-iu-gainen-ga-sonzai-shinai-taikutsu-na-sekai-f210](https://user-images.githubusercontent.com/75318518/141960241-e7e44568-2a85-4a69-b9cc-87039c774459.jpg)
 ##### Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai

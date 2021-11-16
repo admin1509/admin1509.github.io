@@ -12,7 +12,7 @@
 ###### [`Tập 10`](https://bitly.com/3HqnBE8)
 ###### [`Tập 11`](https://bitly.com/2YQsjtj)
 ###### [`Tập 12`](https://bitly.com/3ceqRUL)
-###### [`OVA`]
+###### [`OVA`](https://bitly.com/3wTVkB0)
 
 ##### ![image](https://user-images.githubusercontent.com/75318518/141922087-36306ae6-4847-42fe-bbe0-a8bf4ad521b1.png)
 ##### Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ

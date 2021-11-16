@@ -1,6 +1,8 @@
 # [![Zing TV](https://user-images.githubusercontent.com/75318518/141922817-7aaa752a-6880-4c79-87f1-5ad01bdda715.png)](https://admin1509.github.io/tv.zing.vn/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
+###### [Tập 1](https://admin1509.github.io/tv.zing.vn/)
+
 ##### ![image](https://user-images.githubusercontent.com/75318518/141922087-36306ae6-4847-42fe-bbe0-a8bf4ad521b1.png)Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ
 
 Tag: Tsuujou Kougeki ga Zentai Kougeki de Ni-kai Kougeki no Okaasan wa Suki Desu ka, Chơi Game Cùng Mẹ, Do You Like Your Mom? Her Normal Attack is Two Attacks at Full Power, Okaasan online

@@ -17,6 +17,6 @@
 ##### ![Untitled](https://user-images.githubusercontent.com/75318518/141947349-7420f8d5-766b-42f2-bcfb-85d1a6bde2d8.png)
 ##### Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ
 
-#### Tag: `Tsuujou Kougeki ga Zentai Kougeki de Ni-kai Kougeki no Okaasan wa Suki Desu ka`, `Chơi Game Cùng Mẹ`, `Do You Like Your Mom? Her Normal Attack is Two Attacks at Full Power`, `Okaasan online`
-#### Thể loại: `Anime`, `Hoạt Hình`, `Hành Động - Phiêu Lưu, Hài Hước`, `Viễn Tưởng`
-#### Ông cha ta đã từng cho ta rất nhiều từ ngữ phong phú như siscon, brocon,... và bây giờ là momcon! Bạn sẽ làm gì nếu như bạn được úm ba la xì bùa vào game... với mẹ của mình? Đó là một vấn đề cấp bách đang cần giải quyết đối với nam sinh có tên là Masato Oosuki, người đã vô tình bị ném vào thế giới RPG với mẹ của mình như một phần kế hoạch bí mật của chính phủ. Là một gamer chân chính, Masato rất muốn thể hiện các kỹ năng của mình... nhưng mà... lại thật khó thực hiện khi mẹ của cậu ta lại là chuyên gia xung kích đa... đa... đa mục tiêu!
+#### Ngay khi Masato nghĩ rằng bài khảo sát ở trường đã kết thúc, thì cậu lại dính vào một âm mưu bí mật của Chính Phủ. Khi chưa hiểu chuyện gì xảy ra thì cậu đã rơi vào thế giới Game! Chưa đủ bất ngờ, cậu còn phát hiện mẹ mình cũng ở đó! Có hơi khác với những câu chuyện phiêu lưu sang dị giới, sau một chút cãi vã thì:
+###### `90%` (688 lượt, đánh giá: 9 trên 10)
+###### ![image](https://user-images.githubusercontent.com/75318518/141947861-56320cf6-8d4b-4815-b94e-dce768e4b715.png)

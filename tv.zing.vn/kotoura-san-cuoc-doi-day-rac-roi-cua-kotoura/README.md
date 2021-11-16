@@ -2,7 +2,7 @@
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
 ###### [`Tập 1`](https://bitly.com/3cgzBcN)
-###### [`Tập 2`]
+###### [`Tập 2`](https://bitly.com/3wRWugn)
 ###### [`Tập 3`]
 ###### [`Tập 4`]
 ###### [`Tập 5`]

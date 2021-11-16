@@ -12,7 +12,7 @@
 ###### [`Tập 9`](https://bitly.com/3CkHEjs)
 ###### [`Tập 10`](https://bitly.com/3x43sit)
 ###### [`Tập 11`](https://bitly.com/3Hn3XZH)
-###### [`Tập 12`]
+###### [`Tập 12`](https://bitly.com/3ceQowT)
 
 ##### ![image](https://user-images.githubusercontent.com/75318518/141948913-16514f84-2fed-4f0d-95b4-18a0fff2f3b8.png)
 ##### Kotoura-san - Cuộc Đời Đầy Rắc Rối Của Kotoura

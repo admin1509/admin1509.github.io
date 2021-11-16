@@ -1,4 +1,4 @@
-# [![Hoathinh247](https://user-images.githubusercontent.com/75318518/141946733-c70a70e4-a499-4f9b-af68-c30eaa53f794.png)](https://admin1509.github.io/hoathinh247tv.com/)
+# [![Hoathinh247](https://user-images.githubusercontent.com/75318518/141947432-f818d463-e399-4827-9d0d-1c5385968d8e.png)](https://admin1509.github.io/hoathinh247tv.com/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
 ###### [`Tập 1`](https://bitly.com/3Cmyoeu)
@@ -14,7 +14,7 @@
 ###### [`Tập 12`](https://bitly.com/3ceqRUL)
 ###### [`OVA`](https://bitly.com/3wTVkB0)
 
-##### ![image](https://user-images.githubusercontent.com/75318518/141922087-36306ae6-4847-42fe-bbe0-a8bf4ad521b1.png)
+##### ![Untitled](https://user-images.githubusercontent.com/75318518/141947349-7420f8d5-766b-42f2-bcfb-85d1a6bde2d8.png)
 ##### Tsuujou Kougeki ga Zentai Kougeki - Chơi Game Cùng Mẹ
 
 #### Tag: `Tsuujou Kougeki ga Zentai Kougeki de Ni-kai Kougeki no Okaasan wa Suki Desu ka`, `Chơi Game Cùng Mẹ`, `Do You Like Your Mom? Her Normal Attack is Two Attacks at Full Power`, `Okaasan online`

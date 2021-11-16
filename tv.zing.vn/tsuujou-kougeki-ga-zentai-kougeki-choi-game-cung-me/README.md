@@ -8,7 +8,7 @@
 ###### [`Tập 6`](https://bitly.com/3owHzV0)
 ###### [`Tập 7`](https://bitly.com/30tz0Sh)
 ###### [`Tập 8`](https://bitly.com/3njsLcK)
-###### [`Tập 9`]
+###### [`Tập 9`](https://bitly.com/3FqoJpv)
 ###### [`Tập 10`]
 ###### [`Tập 11`]
 ###### [`Tập 12`]

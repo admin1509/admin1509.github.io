@@ -1,4 +1,4 @@
-# [![Zing TV](https://user-images.githubusercontent.com/75318518/141922817-7aaa752a-6880-4c79-87f1-5ad01bdda715.png)](https://admin1509.github.io/tv.zing.vn/)
+# [![Hoathinh247](https://user-images.githubusercontent.com/75318518/141946733-c70a70e4-a499-4f9b-af68-c30eaa53f794.png)](https://admin1509.github.io/hoathinh247tv.com/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
 ###### [`Tập 1`](https://bitly.com/3Cmyoeu)

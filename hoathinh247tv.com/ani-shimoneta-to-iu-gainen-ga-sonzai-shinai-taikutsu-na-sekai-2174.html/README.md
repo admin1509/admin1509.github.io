@@ -3,7 +3,7 @@
 
 ###### [`Tập 1`](https://bitly.com/3wP31YW)
 ###### [`Tập 2`](https://bitly.com/3osjvCC)
-###### [`Tập 3`]
+###### [`Tập 3`](https://bitly.com/3Hqso8i)
 ###### [`Tập 4`]
 ###### [`Tập 5`]
 ###### [`Tập 6`]

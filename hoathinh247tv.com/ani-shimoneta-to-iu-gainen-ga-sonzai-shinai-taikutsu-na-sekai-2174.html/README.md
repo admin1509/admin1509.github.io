@@ -12,7 +12,7 @@
 ###### [`Tập 9 Bitmovin`](https://bitly.com/3Ho3Kp3) - [`Tập 9 HDPlay`](https://bitly.com/3cqmF41)
 ###### [`Tập 10 Bitmovin`](https://bitly.com/3FilxMm) - [`Tập 10 HDPlay`](https://bitly.com/3Ct04OR)
 ###### [`Tập 11 Bitmovin`](https://bitly.com/3Cmo85Z) - [`Tập 11 HDPlay`](https://bitly.com/3qKpANF)
-###### [`Tập 12 Bitmovin`]() - [`Tập 12 HDPlay`]()
+###### [`Tập 12 Bitmovin`](https://bitly.com/3CmqMZB) - [`Tập 12 HDPlay`](https://bitly.com/3npBOcu)
 
 ##### ![1625071498-shimoneta-to-iu-gainen-ga-sonzai-shinai-taikutsu-na-sekai-f210](https://user-images.githubusercontent.com/75318518/141960241-e7e44568-2a85-4a69-b9cc-87039c774459.jpg)
 ##### Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai

@@ -11,7 +11,7 @@
 ###### [`Tập 8 Bitmovin`](https://bitly.com/3wTE4vo) - [`Tập 8 HDPlay`](https://bitly.com/3nj7LTz)
 ###### [`Tập 9 Bitmovin`](https://bitly.com/3Ho3Kp3) - [`Tập 9 HDPlay`](https://bitly.com/3cqmF41)
 ###### [`Tập 10 Bitmovin`](https://bitly.com/3FilxMm) - [`Tập 10 HDPlay`](https://bitly.com/3Ct04OR)
-###### [`Tập 11 Bitmovin`]() - [`Tập 11 HDPlay`]()
+###### [`Tập 11 Bitmovin`](https://bitly.com/3Cmo85Z) - [`Tập 11 HDPlay`](https://bitly.com/3qKpANF)
 ###### [`Tập 12 Bitmovin`]() - [`Tập 12 HDPlay`]()
 
 ##### ![1625071498-shimoneta-to-iu-gainen-ga-sonzai-shinai-taikutsu-na-sekai-f210](https://user-images.githubusercontent.com/75318518/141960241-e7e44568-2a85-4a69-b9cc-87039c774459.jpg)

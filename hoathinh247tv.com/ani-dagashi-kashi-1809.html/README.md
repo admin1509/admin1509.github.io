@@ -11,7 +11,7 @@
 ###### [`Tập 8 Bitmovin`](https://bitly.com/3ntFv0H) - [`Tập 8 HDPlay`](https://bitly.com/3nuuex2)
 ###### [`Tập 9 Bitmovin`](https://bitly.com/3crCF5Y) - [`Tập 9 HDPlay`](https://bitly.com/32mdT5H)
 ###### [`Tập 10 Bitmovin`](https://bitly.com/3CuPNBT) - [`Tập 10 HDPlay`](https://bitly.com/3FqIXPC)
-###### [`Tập 11 Bitmovin`](https://bitly.com/) - [`Tập 11 HDPlay`](https://bitly.com/)
+###### [`Tập 11 Bitmovin`](https://bitly.com/3nvDvF1) - [`Tập 11 HDPlay`](https://bitly.com/3CzcPYu)
 ###### [`Tập 12 Bitmovin`](https://bitly.com/) - [`Tập 12 HDPlay`](https://bitly.com/)
 ###### [`Tập 13 Bitmovin`](https://bitly.com/3kSXETT) - [`Tập 13 HDPlay`](https://bitly.com/3oHzNb1)
 ###### [`Tập 14 Bitmovin`](https://bitly.com/3CBkTYy) - [`Tập 14 HDPlay`](https://bitly.com/3kROIOD)

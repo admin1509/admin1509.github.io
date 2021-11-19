@@ -1,6 +1,7 @@
 # [![Hoathinh247](https://user-images.githubusercontent.com/75318518/141947432-f818d463-e399-4827-9d0d-1c5385968d8e.png)](https://admin1509.github.io/hoathinh247tv.com/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
+### Phần 1
 ###### [`Tập 1 Bitmovin`](https://bitly.com/3kFxDHF) - [`Tập 1 HDPlay`](https://bitly.com/3cn9hO9)
 ###### [`Tập 2 Bitmovin`](https://bitly.com/3wYhxxQ) - [`Tập 2 HDPlay`](https://bitly.com/3HveHF7)
 ###### [`Tập 3 Bitmovin`](https://bitly.com/3FrR9iy) - [`Tập 3 HDPlay`](https://bitly.com/3qLDP4w)
@@ -13,18 +14,19 @@
 ###### [`Tập 10 Bitmovin`](https://bitly.com/3CuPNBT) - [`Tập 10 HDPlay`](https://bitly.com/3FqIXPC)
 ###### [`Tập 11 Bitmovin`](https://bitly.com/3nvDvF1) - [`Tập 11 HDPlay`](https://bitly.com/3CzcPYu)
 ###### [`Tập 12 Bitmovin`](https://bitly.com/3x50NF5) - [`Tập 12 HDPlay`](https://bitly.com/3DyERVp)
-###### [`Tập 13 Bitmovin`](https://bitly.com/3nzwZNu) - [`Tập 13 HDPlay`](https://bitly.com/30I3AIx)
-###### [`Tập 14 Bitmovin`](https://bitly.com/3CBkTYy) - [`Tập 14 HDPlay`](https://bitly.com/3kROIOD)
-###### [`Tập 15 Bitmovin`](https://bitly.com/3oI7ARk) - [`Tập 15 HDPlay`](https://bitly.com/3ctWv0t)
-###### [`Tập 16 Bitmovin`](https://bitly.com/) - [`Tập 16 HDPlay`](https://bitly.com/)
-###### [`Tập 17 Bitmovin`](https://bitly.com/) - [`Tập 17 HDPlay`](https://bitly.com/)
-###### [`Tập 18 Bitmovin`](https://bitly.com/) - [`Tập 18 HDPlay`](https://bitly.com/)
-###### [`Tập 19 Bitmovin`](https://bitly.com/) - [`Tập 19 HDPlay`](https://bitly.com/)
-###### [`Tập 20 Bitmovin`](https://bitly.com/) - [`Tập 20 HDPlay`](https://bitly.com/)
-###### [`Tập 21 Bitmovin`](https://bitly.com/) - [`Tập 21 HDPlay`](https://bitly.com/)
-###### [`Tập 22 Bitmovin`](https://bitly.com/) - [`Tập 22 HDPlay`](https://bitly.com/)
-###### [`Tập 23 Bitmovin`](https://bitly.com/) - [`Tập 23 HDPlay`](https://bitly.com/)
-###### [`Tập 24 Bitmovin`](https://bitly.com/) - [`Tập 24 HDPlay`](https://bitly.com/)
+### Phần 2
+###### [`Tập 1 Bitmovin`](https://bitly.com/3nzwZNu) - [`Tập 1 HDPlay`](https://bitly.com/30I3AIx)
+###### [`Tập 2 Bitmovin`](https://bitly.com/3CBkTYy) - [`Tập 2 HDPlay`](https://bitly.com/3kROIOD)
+###### [`Tập 3 Bitmovin`](https://bitly.com/3oI7ARk) - [`Tập 3 HDPlay`](https://bitly.com/3ctWv0t)
+###### [`Tập 4 Bitmovin`](https://bitly.com/) - [`Tập 4 HDPlay`](https://bitly.com/)
+###### [`Tập 5 Bitmovin`](https://bitly.com/) - [`Tập 5 HDPlay`](https://bitly.com/)
+###### [`Tập 6 Bitmovin`](https://bitly.com/) - [`Tập 6 HDPlay`](https://bitly.com/)
+###### [`Tập 7 Bitmovin`](https://bitly.com/) - [`Tập 7 HDPlay`](https://bitly.com/)
+###### [`Tập 8 Bitmovin`](https://bitly.com/) - [`Tập 8 HDPlay`](https://bitly.com/)
+###### [`Tập 9 Bitmovin`](https://bitly.com/) - [`Tập 9 HDPlay`](https://bitly.com/)
+###### [`Tập 10 Bitmovin`](https://bitly.com/) - [`Tập 10 HDPlay`](https://bitly.com/)
+###### [`Tập 11 Bitmovin`](https://bitly.com/) - [`Tập 11 HDPlay`](https://bitly.com/)
+###### [`Tập 12 Bitmovin`](https://bitly.com/) - [`Tập 12 HDPlay`](https://bitly.com/)
 
 ##### ![1625071469-dagashi-kashi-f165](https://user-images.githubusercontent.com/75318518/142188877-a5942764-86ec-4a29-8d45-9f64e2c1536b.jpg)
 ##### Dagashi Kashi

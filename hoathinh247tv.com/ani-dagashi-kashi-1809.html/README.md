@@ -28,7 +28,9 @@
 ###### [`Tập 11 Bitmovin`](https://bitly.com/) - [`Tập 11 HDPlay`](https://bitly.com/)
 ###### [`Tập 12 Bitmovin`](https://bitly.com/) - [`Tập 12 HDPlay`](https://bitly.com/)
 
-##### ![1625071469-dagashi-kashi-f165](https://user-images.githubusercontent.com/75318518/142188877-a5942764-86ec-4a29-8d45-9f64e2c1536b.jpg)
-##### Dagashi Kashi
-###### `90%` (18 lượt, đánh giá: 9 trên 10)
+##### ![1625071469-dagashi-kashi-f165](https://user-images.githubusercontent.com/75318518/142188877-a5942764-86ec-4a29-8d45-9f64e2c1536b.jpg)![142724187-bf296233-d935-4a2e-8b7e-d6acf1e7bebf](https://user-images.githubusercontent.com/75318518/142724242-74cbbf42-c85b-4e85-bfeb-3b90c671b765.png)
+##### Dagashi Kashi & Dagashi Kashi 2
+###### `90%` (18 lượt, đánh giá: 9 trên 10) & `100%` (139 lượt, đánh giá: 10 trên 10)
 ###### ![image](https://user-images.githubusercontent.com/75318518/142189130-515f74d9-83ab-4199-92af-91cdeddde627.png)
+###### ![image](https://user-images.githubusercontent.com/75318518/142724288-c58e703b-fd31-472d-a031-a726f08c5942.png)
+

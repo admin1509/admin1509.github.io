@@ -25,7 +25,7 @@
 ###### [`Tập 8 Bitmovin`](https://bitly.com/3cxOLe4) - [`Tập 8 HDPlay`](https://bitly.com/3x609ar)
 ###### [`Tập 9 Bitmovin`](https://bitly.com/3kUYQ9w) - [`Tập 9 HDPlay`](https://bitly.com/3Fz6v4Z)
 ###### [`Tập 10 Bitmovin`](https://bitly.com/3rbgFoL) - [`Tập 10 HDPlay`](https://bitly.com/3CDEs2D)
-###### [`Tập 11 Bitmovin`](https://bitly.com/) - [`Tập 11 HDPlay`](https://bitly.com/)
+###### [`Tập 11 Bitmovin`](https://bitly.com/3DOSUWE) - [`Tập 11 HDPlay`](https://bitly.com/3nzI94W)
 ###### [`Tập 12 Bitmovin`](https://bitly.com/) - [`Tập 12 HDPlay`](https://bitly.com/)
 
 ##### ![1625071469-dagashi-kashi-f165](https://user-images.githubusercontent.com/75318518/142188877-a5942764-86ec-4a29-8d45-9f64e2c1536b.jpg)![142724187-bf296233-d935-4a2e-8b7e-d6acf1e7bebf](https://user-images.githubusercontent.com/75318518/142724242-74cbbf42-c85b-4e85-bfeb-3b90c671b765.png)

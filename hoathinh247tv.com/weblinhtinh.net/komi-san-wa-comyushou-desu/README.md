@@ -2,7 +2,7 @@
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
 ###### [`Tập 1 Bitmovin`](https://bitly.com/2ZddLEk) - [`Tập 1 HDPlay`](https://bitly.com/3cwdtev)
-###### [`Tập 2 Bitmovin`](https://bitly.com/) - [`Tập 2 HDPlay`](https://bitly.com/)
+###### [`Tập 2 Bitmovin`](https://bitly.com/3cCYi3a) - [`Tập 2 HDPlay`](https://bitly.com/3kWTxWP)
 ###### [`Tập 3 Bitmovin`](https://bitly.com/) - [`Tập 3 HDPlay`](https://bitly.com/)
 ###### [`Tập 4 Bitmovin`](https://bitly.com/) - [`Tập 4 HDPlay`](https://bitly.com/)
 ###### [`Tập 5 Bitmovin`](https://bitly.com/) - [`Tập 5 HDPlay`](https://bitly.com/)

@@ -7,7 +7,7 @@
 ###### [`Tập 4 Bitmovin`](https://bitly.com/3FwPXL2) - [`Tập 4 HDPlay`](https://bitly.com/3kVCGni)
 ###### [`Tập 5 Bitmovin`](https://bitly.com/3DPheYs) - [`Tập 5 HDPlay`](https://bitly.com3kS2Ln9/)
 ###### [`Tập 6 Bitmovin`](https://bitly.com/30LOCB2) - [`Tập 6 HDPlay`](https://bitly.com/32mNfJN)
-###### [`Tập 7 Bitmovin`](https://bitly.com/) - [`Tập 7 HDPlay`](https://bitly.com/)
+###### [`Tập 7 Bitmovin`](https://bitly.com/3czIfmY) - [`Tập 7 HDPlay`](https://bitly.com/30GUjjy)
 
 ###### ![showtime-uta-no-oneesan-datte-shitai-250x350 jpg](https://user-images.githubusercontent.com/75318518/142750291-e53b624e-7ded-4b1c-acc0-b81258ea89dc.png)
 ### NỘI DUNG PHIM

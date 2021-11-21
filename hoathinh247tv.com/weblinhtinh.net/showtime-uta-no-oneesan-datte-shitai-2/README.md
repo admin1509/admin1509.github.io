@@ -1,7 +1,7 @@
 # [![WebLinhTinh](https://user-images.githubusercontent.com/75318518/142744863-3e57d0b8-e730-4ed0-a57c-c755c0eb671a.PNG)](https://admin1509.github.io/hoathinh247tv.com/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
-###### [`Tập 1 Bitmovin`](https://bitly.com/3CONcmJ) - [`Tập 1 HDPlay`](https://bitly.com/)
+###### [`Tập 1 Bitmovin`](https://bitly.com/3CONcmJ) - [`Tập 1 HDPlay`](https://bitly.com/30GHBBl)
 ###### [`Tập 2 Bitmovin`](https://bitly.com/) - [`Tập 2 HDPlay`](https://bitly.com/)
 ###### [`Tập 3 Bitmovin`](https://bitly.com/) - [`Tập 3 HDPlay`](https://bitly.com/)
 ###### [`Tập 4 Bitmovin`](https://bitly.com/) - [`Tập 4 HDPlay`](https://bitly.com/)

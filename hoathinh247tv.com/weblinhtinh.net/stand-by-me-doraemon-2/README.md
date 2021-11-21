@@ -1,7 +1,7 @@
 # [![WebLinhTinh](https://user-images.githubusercontent.com/75318518/142744863-3e57d0b8-e730-4ed0-a57c-c755c0eb671a.PNG)](https://admin1509.github.io/hoathinh247tv.com/)
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
-###### [`Xem ngay Bitmovin`](https://bitly.com/) - [`Xem ngay HDPlay`](https://bitly.com/)
+###### [`Xem ngay Bitmovin`](https://bitly.com/3FFkmad) - [`Xem ngay HDPlay`](https://bitly.com/3nCiKrr)
 
 ###### ![stand-by-me-doraemon-2-250x350 jpg](https://user-images.githubusercontent.com/75318518/142744940-ce72691b-36d8-4814-b1ff-8cb1e9bc3f42.png)
 

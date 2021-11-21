@@ -6,7 +6,7 @@
 ###### [`Tập 3 Bitmovin`](https://bitly.com/3HRGrEr) - [`Tập 3 HDPlay`](https://bitly.com/3x9Ps6t)
 ###### [`Tập 4 Bitmovin`](https://bitly.com/3COIQMp) - [`Tập 4 HDPlay`](https://bitly.com/32lcU5D)
 ###### [`Tập 5 Bitmovin`](https://bitly.com/3x7zbit) - [`Tập 5 HDPlay`](https://bitly.com/30GJM8A)
-###### [`Tập 6 Bitmovin`](https://bitly.com/) - [`Tập 6 HDPlay`](https://bitly.com/)
+###### [`Tập 6 Bitmovin`](https://bitly.com/3oNdMaD) - [`Tập 6 HDPlay`](https://bitly.com/3qXokqf)
 ###### [`Tập 7 Bitmovin`](https://bitly.com/) - [`Tập 7 HDPlay`](https://bitly.com/)
 
 ###### ![komi-san-wa-comyushou-desu-250x350](https://user-images.githubusercontent.com/75318518/142747924-fc01211b-3218-4aba-b90e-f4a1da6912cd.png)

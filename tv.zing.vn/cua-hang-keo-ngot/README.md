@@ -22,11 +22,11 @@
 ###### [`Tập 5 Bitmovin`](https://bitly.com/3DE2Emz) - [`Tập 5 HDPlay`](https://bitly.com/30L4zrb)
 ###### [`Tập 6 Bitmovin`](https://bitly.com/30NyNda) - [`Tập 6 HDPlay`](https://bitly.com/3qUMqlv)
 ###### [`Tập 7 Bitmovin`](https://bitly.com/3CBGIr4) - [`Tập 7 HDPlay`](https://bitly.com/3kUWjMy)
-###### [`Tập 8 Bitmovin`](https://bitly.com/) - [`Tập 8 HDPlay`](https://bitly.com/)
-###### [`Tập 9 Bitmovin`](https://bitly.com/) - [`Tập 9 HDPlay`](https://bitly.com/)
-###### [`Tập 10 Bitmovin`](https://bitly.com/) - [`Tập 10 HDPlay`](https://bitly.com/)
-###### [`Tập 11 Bitmovin`](https://bitly.com/) - [`Tập 11 HDPlay`](https://bitly.com/)
-###### [`Tập 12 Bitmovin`](https://bitly.com/) - [`Tập 12 HDPlay`](https://bitly.com/)
+###### [`Tập 8 Bitmovin`](https://bitly.com/3cxOLe4) - [`Tập 8 HDPlay`](https://bitly.com/3x609ar)
+###### [`Tập 9 Bitmovin`](https://bitly.com/3kUYQ9w) - [`Tập 9 HDPlay`](https://bitly.com/3Fz6v4Z)
+###### [`Tập 10 Bitmovin`](https://bitly.com/3rbgFoL) - [`Tập 10 HDPlay`](https://bitly.com/3CDEs2D)
+###### [`Tập 11 Bitmovin`](https://bitly.com/3DOSUWE) - [`Tập 11 HDPlay`](https://bitly.com/3nzI94W)
+###### [`Tập 12 Bitmovin`](https://bitly.com/3x4iFQs) - [`Tập 12 HDPlay`](https://bitly.com/3DCJspB)
 
 ##### ![image](https://user-images.githubusercontent.com/75318518/142186865-23b134ee-6b61-47eb-87e7-81b1b1d30c83.png)
 ##### Cửa Hàng Kẹo Ngọt

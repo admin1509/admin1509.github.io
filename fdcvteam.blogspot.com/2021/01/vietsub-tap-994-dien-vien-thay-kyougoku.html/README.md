@@ -5,5 +5,5 @@
 #### Tóm tắt nội dung
 ##### Conan, Ran, Sonoko, Sera, Makoto cùng đi xem phim. Sau khi rời khỏi rạp đang phấn khích với bộ phim thì có một người đàn ông bên kia đường bắt cóc, chĩa súng vào một cô gái. Makoto nhanh chóng giải quyết vụ việc này, nhưng thực tế người đàn ông đó là một diễn viên đang quay phim. Nam diễn viên đã bất tỉnh vậy nên Makoto quyết định thế chỗ cho nam diễn viên !?  
 ##### >> Page Facebook mới của FDCV: [fb.com/conanfdcv](https://fb.com/conanfdcv)
-### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/)
-### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/)
+### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/34b85ad6-5f8f-4dc0-ae18-b67c52123b20/720p/file.m3u8)
+### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/34b85ad6-5f8f-4dc0-ae18-b67c52123b20/720p/file.m3u8)

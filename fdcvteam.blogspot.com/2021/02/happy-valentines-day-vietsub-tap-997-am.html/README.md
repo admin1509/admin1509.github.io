@@ -5,5 +5,5 @@
 #### Tóm tắt nội dung
 ##### Nhóm thám tử nhí bị bưng đến Làng Nụ Cười bởi vị giám đốc quản lý. Tại đây là viện dưỡng lão, nơi các bà lão là fan hâm mộ đội thám tử nhí. Đặc biệt thay những người quản lý luôn nở nụ cười với mọi người. Nhưng đằng sau nụ cười hình như có một âm mưu nào đó!
 ##### >> Page Facebook mới của FDCV: [fb.com/conanfdcv](https://fb.com/conanfdcv)
-### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/)
-### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/)
+### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/08422af0-c4cc-41db-bd35-d8a50707a0c3/720p/file.m3u8)
+### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/08422af0-c4cc-41db-bd35-d8a50707a0c3/720p/file.m3u8)

@@ -1,0 +1,9 @@
+# [![FDCV](https://user-images.githubusercontent.com/75318518/142803511-f5c20d56-47eb-4f2a-b63f-6b9b169c295b.png)](https://admin1509.github.io/fdcvteam.blogspot.com/)
+## [Vietsub] Tập 1025: Thư khiêu chiến của Oooka Momiji (Phần cuối)
+![1025](https://user-images.githubusercontent.com/75318518/143767923-fb4cea19-32a6-4b84-a4ee-2841530a8833.jpg)
+
+#### Tóm tắt nội dung
+##### Ran nhận được mail từ Ooka Momiji nói rằng: "Có một mật mã tôi muốn Kudou Shinichi giải nó". Theo Momiji, một quản gia làm việc lâu năm trong một dinh thự giàu có đã chết sau khi để lại mật mã cho 4 người con trai của mình. Cô ấy thích những bí ẩn và đã gửi mật mã cho mỗi người để họ cùng nhau có được kho báu. Nhưng khi những người con trai tập hợp lại với nhau thì người anh cả đã mất liên lạc. Có thể anh ta đã gặp chuyện gì đó, vì vậy cô ấy muốn nhờ giải mã và tìm ra tung tích người anh cả. Một cuộc so tài thám tử giữa Shinichi và Heiji khi gần như cùng lúc đưa ra đáp án dẫn tới kho số 4 cảng Haido. Nhưng khi đến địa điểm trên, người anh cả trong số 4 người anh em đã chết. Theo như lời kể của những người em thì họ nhận đc mail từ người anh cả, khi người anh thứ đến thì đã phát hiện xác chết. Thoạt nhìn như một vụ tai nạn nhưng sau khi xem xét hiện trường, Conan và Heiji suy ra anh ta đã bị sát hại... Mặt khác, quản gia Iori nói rằng "gần đây có một nơi thích hợp để tỏ tình"...!? Liệu rằng Shinichi hay Heiji sẽ là người giải quyết bí ẩn của vụ án trước?! Heiji có thể tỏ tình với Kazuha không?!
+##### >> Page Facebook mới của FDCV: [fb.com/conanfdcv](https://fb.com/conanfdcv)
+### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results//720p/file.m3u8)
+### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results//720p/file.m3u8)

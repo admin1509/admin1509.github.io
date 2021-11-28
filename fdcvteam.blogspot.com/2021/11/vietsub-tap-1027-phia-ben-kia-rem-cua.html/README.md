@@ -5,5 +5,5 @@
 #### Tóm tắt nội dung
 ##### Tiến sĩ Agasa, Mitsuhiko, Ayumi và Genta đang dùng bữa tại một nhà hàng ở tầng 3 toà nhà. Từ chỗ của họ, ở phía đối diện họ thấy một người đàn ông và một phụ nữ đang tổ chức tiệc qua rèm cửa. Nhưng ngay lúc đó, có vẻ như người phụ nữ đang bị tấn công bởi một người đàn ông. Bốn người họ vội vàng báo cảnh sát...
 ##### >> Page Facebook mới của FDCV: [fb.com/conanfdcv](https://fb.com/conanfdcv)
-### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/)
-### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/)
+### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/fcc58337-a5e3-4ad2-b646-937d078314b2/720p/file.m3u8)
+### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/fcc58337-a5e3-4ad2-b646-937d078314b2/720p/file.m3u8)

@@ -5,5 +5,5 @@
 #### Tóm tắt nội dung
 ##### Conan cùng Ran và Sonoko đến "Bảo tàng văn minh phương Đông cổ đại" vì "Móc chìa khoá thần Ai Cập" đang được các nữ sinh ưa chuộng chỉ có thể mua được ở đây. Hai người say mê lựa chọn móc chìa khoá. Trong khi đang quanh quẩn giết thời gian, Conan nhìn thấy cuốn sổ của khách quan...? Một sự cố bất ngờ xảy ra tại bảo tàng... Sự thật đằng sau nó là...?
 ##### >> Page Facebook mới của FDCV: [fb.com/conanfdcv](https://fb.com/conanfdcv)
-### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results//720p/file.m3u8)
-### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results//720p/file.m3u8)
+### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/93f42f12-a6af-45c4-b1fb-dcc752a727bd/720p/file.m3u8)
+### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/93f42f12-a6af-45c4-b1fb-dcc752a727bd/720p/file.m3u8)

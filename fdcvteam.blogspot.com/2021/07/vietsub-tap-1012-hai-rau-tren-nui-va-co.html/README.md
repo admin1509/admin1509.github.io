@@ -3,5 +3,5 @@
 ![image](https://user-images.githubusercontent.com/75318518/144035132-febc38c4-5a59-463e-a5f0-88c3ad55dc89.png)
 
 ##### >> Page Facebook mới của FDCV: [fb.com/conanfdcv](https://fb.com/conanfdcv)
-### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results//720p/file.m3u8)
-### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results//720p/file.m3u8)
+### [Bitmovin](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/b6b8df20-ab31-4258-9ca3-3dc8e404322c/720p/file.m3u8)
+### [HDPlay](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/video-5b.gapo.vn/videos/results/b6b8df20-ab31-4258-9ca3-3dc8e404322c/720p/file.m3u8)

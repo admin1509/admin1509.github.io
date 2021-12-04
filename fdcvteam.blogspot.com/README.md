@@ -36,4 +36,5 @@
 ### [[Vietsub] Tập 995: Diễn viên thay thế - Kyougoku Makoto (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/01/vietsub-tap-995-dien-vien-thay-kyougoku.html)
 ### [[Vietsub] Tập 994: Diễn viên thay thế - Kyougoku Makoto (Phần giữa)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/01/vietsub-tap-994-dien-vien-thay-kyougoku.html)
 ### [[Vietsub] Tập 993: Diễn viên thay thế - Kyougoku Makoto (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/01/vietsub-tap-993-dien-vien-thay-kyougoku.html)
+### [[Vietsub] Tập 984: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/145)
 ### [[Vietsub] Tập 983: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/146)

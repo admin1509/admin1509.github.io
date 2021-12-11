@@ -10,6 +10,8 @@
 ###### [`Tập 7 Bitmovin`](https://bitly.com/3kVIFsa) - [`Tập 7 HDPlay`](https://bitly.com/3nBagRr)
 ###### [`Tập 8 Bitmovin`](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/s1.animeweb.xyz/media/video-clips/anime2/03-2021/Komi-sanwa-Comyushou-desu/8/Komi-sanwa-Comyushou-desu-8.m3u8) - [`Tập 8 HDPlay`](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/s1.animeweb.xyz/media/video-clips/anime2/03-2021/Komi-sanwa-Comyushou-desu/8/Komi-sanwa-Comyushou-desu-8.m3u8)
 ###### [`Tập 9 Bitmovin`](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/s1.animeweb.xyz/media/video-clips/anime2/03-2021/Komi-sanwa-Comyushou-desu/9/Komi-sanwa-Comyushou-desu-9.m3u8) - [`Tập 9 HDPlay`](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/s1.animeweb.xyz/media/video-clips/anime2/03-2021/Komi-sanwa-Comyushou-desu/9/Komi-sanwa-Comyushou-desu-9.m3u8)
+###### [`Tập 10 Bitmovin`](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/s1.animeweb.xyz/media/video-clips/anime2/03-2021/Komi-sanwa-Comyushou-desu/10/Komi-sanwa-Comyushou-desu-10.m3u8) - [`Tập 10 HDPlay`](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/s1.animeweb.xyz/media/video-clips/anime2/03-2021/Komi-sanwa-Comyushou-desu/10/Komi-sanwa-Comyushou-desu-10.m3u8)
+
 
 ###### ![komi-san-wa-comyushou-desu-250x350](https://user-images.githubusercontent.com/75318518/142747924-fc01211b-3218-4aba-b90e-f4a1da6912cd.png)
 

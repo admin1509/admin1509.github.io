@@ -39,5 +39,6 @@
 ### [[Vietsub] Tập 993: Diễn viên thay thế - Kyougoku Makoto (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/01/vietsub-tap-993-dien-vien-thay-kyougoku.html)
 ### [[Vietsub] Tập 992: Vụ án ở quán Cafe Machiya (Nhà phố) [1080p]](https://admin1509.github.io/fdcvteam.blogspot.com/2020/12/vietsub-tap-992-vu-o-quan-cafe-machiya.html)
 ### [[Merry Christmas!] [Vietsub] Tập 991: Bi kịch tự động (Phần cuối) [1080p]](https://admin1509.github.io/fdcvteam.blogspot.com/2020/12/vietsub-tap-991-bi-kich-tu-ong-phan.html)
+### [[Vietsub] Tập 990: Bi kịch tự động (Phần đầu) [1080p]](https://admin1509.github.io/fdcvteam.blogspot.com/2020/12/vietsub-tap-990-bi-kich-tu-ong-1080p.html)
 ### [[Vietsub] Tập 984: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/145)
 ### [[Vietsub] Tập 983: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/146)

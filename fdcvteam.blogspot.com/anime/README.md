@@ -1,5 +1,6 @@
 # [FDCV](https://admin1509.github.io/fdcvteam.blogspot.com/)
 
+### [[Vietsub] Tập 1030: Một năm trống rỗng (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-ep/177/)
 ### [[Vietsub] Tập 1029: Phần học viện cảnh sát - Wild Police Story (Case. Matsuda Jinpei)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/151/)
 ### [[Vietsub] Tập 1028: Bản Ballad của cô gái yêu bánh](https://admin1509.github.io/fdcvteam.blogspot.com/2021/11/vietsub-tap-1028-ban-ballad-cua-co-gai.html/)
 ### [[Vietsub] Tập 1027: Phía bên kia rèm cửa](https://admin1509.github.io/fdcvteam.blogspot.com/2021/11/vietsub-tap-1027-phia-ben-kia-rem-cua.html/)

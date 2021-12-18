@@ -1,6 +1,7 @@
 # [FDCV](https://admin1509.github.io/fdcvteam.blogspot.com/)
 
 ### [[Vietsub] Movie 14: Con tàu mắc nạn trên không](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/168/)
+### [[Vietsub] Movie 13: Truy lùng tổ chức áo đen](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/167/)
 ### [[Vietsub] Movie 12: Tận cùng của sự sợ hãi](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/166/)
 ### [[Lồng tiếng] Movie 11: Huyền bí dưới biển xanh](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/165/)
 ### [[Vietsub] Movie 10: Lễ cầu hồn của thám tử](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/164/)

@@ -1,6 +1,7 @@
 # [FDCV](https://admin1509.github.io/fdcvteam.blogspot.com/)
 
 ### [[Vietsub] Movie 24: Viên đạn đỏ tươi](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/140/)
+### [[Vietsub] Movie 21: Bản tình ca màu đỏ thẫm](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/95/)
 ### [[Vietsub] Movie 20: Cơn ác mộng đen tối](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/137/)
 ### [[Vietsub] Movie 19 : Hoa hướng dương rực lửa](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/138/)
 ### [[Vietsub] Movie 18: Sát thủ bắn tỉa không tưởng](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/watch-mv/172/)

@@ -48,3 +48,4 @@
 ### [[Vietsub] Tập 985: Hai khuôn mặt (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/2020/10/vietsub-tap-985-hai-khuon-mat-phan-au.html)
 ### [[Vietsub] Tập 984: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/145)
 ### [[Vietsub] Tập 983: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/146)
+### [[Vietsub] TẬP 706: BOURBON SUY TÍNH](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-706)

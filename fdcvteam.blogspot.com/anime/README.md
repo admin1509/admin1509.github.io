@@ -42,5 +42,6 @@
 ### [[Merry Christmas!] [Vietsub] Tập 991: Bi kịch tự động (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/2020/12/vietsub-tap-991-bi-kich-tu-ong-phan.html)
 ### [[Vietsub] Tập 990: Bi kịch tự động (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/2020/12/vietsub-tap-990-bi-kich-tu-ong-1080p.html)
 ### [[Vietsub] Tập 989: Hồ sơ vụ án trong nhật ký của Ayumi](https://admin1509.github.io/fdcvteam.blogspot.com/2020/12/vietsub-tap-989-ho-so-vu-trong-nhat-ky.html)
+### [[Vietsub] Tập 988: Những cô gái bất đồng](https://admin1509.github.io/fdcvteam.blogspot.com/2020/11/vietsub-tap-988-nhung-co-gai-bat-ong.html)
 ### [[Vietsub] Tập 984: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/145)
 ### [[Vietsub] Tập 983: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/146)

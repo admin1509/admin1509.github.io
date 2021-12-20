@@ -49,3 +49,4 @@
 ### [[Vietsub] Tập 984: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/145)
 ### [[Vietsub] Tập 983: Kaitou Kid vs Koumei: Mục tiêu là đôi môi (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/fdcv.xyz/view/146)
 ### [[Vietsub] TẬP 706: BOURBON SUY TÍNH](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-706)
+### [[Vietsub] TẬP 705: CONAN TRONG CĂN PHÒNG KHÓA KÍN](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-705)

@@ -53,3 +53,4 @@
 ### [[Vietsub] TẬP 704: CHUYẾN TÀU TỐC HÀNH BÍ ẨN (TRẠM CUỐI)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-704)
 ### [[Vietsub] TẬP 703: CHUYẾN TÀU TỐC HÀNH BÍ ẨN (GIAO LỘ)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-703)
 ### [[Vietsub] TẬP 702: CHUYẾN TÀU TỐC HÀNH BÍ ẨN (ĐƯỜNG HẦM)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-702)
+### [[Vietsub] TẬP 701: CHUYẾN TÀU TỐC HÀNH BÍ ẨN (KHỞI HÀNH)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-701)

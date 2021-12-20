@@ -55,4 +55,5 @@
 ### [[Vietsub] TẬP 703: CHUYẾN TÀU TỐC HÀNH BÍ ẨN (GIAO LỘ)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-703)
 ### [[Vietsub] TẬP 702: CHUYẾN TÀU TỐC HÀNH BÍ ẨN (ĐƯỜNG HẦM)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-702)
 ### [[Vietsub] TẬP 701: CHUYẾN TÀU TỐC HÀNH BÍ ẨN (KHỞI HÀNH)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-701)
+### [[Vietsub] Tập 302: Dã tâm của cuộc diễu hành và vị thánh (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-302/)
 ### [[Vietsub] Tập 301: Dã tâm của cuộc diễu hành và vị thánh (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-301/)

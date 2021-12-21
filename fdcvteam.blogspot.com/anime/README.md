@@ -60,3 +60,4 @@
 ### [[Vietsub] Tập 302: Dã tâm của cuộc diễu hành và vị thánh (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-302/)
 ### [[Vietsub] Tập 301: Dã tâm của cuộc diễu hành và vị thánh (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-301/)
 ### [[Vietsub] Tập 235: Hầm rượu bị khóa kín (Remastered)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-235/)
+### [[Vietsub] Tập 168: Ngôi nhà nhện quỷ Tottori (Phá án)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-168/)

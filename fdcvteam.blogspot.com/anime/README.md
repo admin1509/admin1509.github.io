@@ -59,3 +59,4 @@
 ### [[Vietsub] Tập 303: Nạn nhân đã quay trở lại](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-303/)
 ### [[Vietsub] Tập 302: Dã tâm của cuộc diễu hành và vị thánh (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-302/)
 ### [[Vietsub] Tập 301: Dã tâm của cuộc diễu hành và vị thánh (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-301/)
+### [[Vietsub] Tập 235: Hầm rượu bị khóa kín (Remastered)](https://admin1509.github.io/fdcvteam.blogspot.com/conan-ep-235/)

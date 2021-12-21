@@ -3,15 +3,17 @@
 
 <head>
     <title>"Fan Detective Conan Vietnamese - FDCV: EP1031 "                                                   </title>
-    <!-- Required meta tags -->
-    <link rel="icon" href="https://www.google.com/s2/favicons?domain=fdcv.xyz">
-    <meta charset="utf-8">
-    <meta name="viewport" content="width=device-width, initial-scale=1, shrink-to-fit=no">
-    <!-- Bootstrap CSS -->
-    <link rel="stylesheet" href="https://stackpath.bootstrapcdn.com/bootstrap/4.1.3/css/bootstrap.min.css" crossorigin="anonymous">
-    <script src="https://raw.githubusercontent.com/admin1509/admin1509/main/getvid/lotus/jwplayer.js" type="ea6d3bd5dd42b6f6ce7eea55-text/javascript"></script>
-    <script src="https://code.jquery.com/jquery-3.3.1.min.js" type="ea6d3bd5dd42b6f6ce7eea55-text/javascript"></script>
-</head>
+<video id=example-video width=960 height=540 class="video-js vjs-default-skin" controls>
+  <source
+     src="https://raw.githubusercontent.com/admin1509/admin1509/main/fdcv.xyz/watch-ep/178/index.m3u8"
+     type="application/x-mpegURL">
+</video>
+<script src="video.js"></script>
+<script src="videojs.hls.min.js"></script>
+<script>
+var player = videojs('example-video');
+player.play();
+</script>
 <!-- Content Wrapper. Contains page content -->
 <div class="content-wrapper">
     <!-- Main content -->

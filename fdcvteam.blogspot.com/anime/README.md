@@ -10,7 +10,7 @@
 ### [[Vietsub] Tập 1024: Thư khiêu chiến của Oooka Momiji (Phần đầu)](https://conanvietsub.github.io/ep/1024/)
 ### [[Vietsub] Tập 1023: Có thể nghe thấy tiếng còi trong tiệm sách cũ 3](https://conanvietsub.github.io/ep/1023/)
 ### [[Vietsub] Tập 1022: Bảo tàng bị nguyền rủa](https://conanvietsub.github.io/ep/1022/)
-### [[Vietsub] Tập 1021: Khúc Rondo của những người bạn tồi tệ](https://admin1509.github.io/fdcvteam.blogspot.com/2021/10/vietsub-tap-1021-khuc-rondo-cua-nhung.html/)
+### [[Vietsub] Tập 1021: Khúc Rondo của những người bạn tồi tệ](https://conanvietsub.github.io/ep/1021/)
 ### [[Vietsub] Tập 1020: Chiếc mâm cổ không thể che giấu (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/09/vietsub-tap-1020-chiec-mam-co-khong-che.html/)
 ### [[Vietsub] Tập 1019: Chiếc mâm cổ không thể che giấu (Phần giữa)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/09/vietsub-tap-1019-chiec-mam-co-khong-che.html/)
 ### [[Vietsub] Tập 1018: Chiếc mâm cổ không thể che giấu (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/09/vietsub-tap-1018-chiec-mam-co-khong-che.html/)

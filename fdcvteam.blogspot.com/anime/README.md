@@ -3,7 +3,7 @@
 ### [[Vietsub] Tập 1031: Một năm trống rỗng (Phần cuối)](https://admin1509.github.io/embed/fdcv.xyz/getvid/lotus/embed.php/VktxeEszYlJlLzBqYjl6VzhRLzNVTEVFdmtwcFVOYzczeUlBUDdXK2NxclBZa2RMQlFKa1FhejBwY0pTL3ZPaA/)
 ### [[Vietsub] Tập 1030: Một năm trống rỗng (Phần đầu)](https://admin1509.github.io/embed/fdcv.xyz/watch-ep/177/)
 ### [[Vietsub] Tập 1029: Phần học viện cảnh sát - Wild Police Story (Case. Matsuda Jinpei)](https://conanvietsub.github.io/ep/1029/)
-### [[Vietsub] Tập 1028: Bản Ballad của cô gái yêu bánh](https://admin1509.github.io/fdcvteam.blogspot.com/2021/11/vietsub-tap-1028-ban-ballad-cua-co-gai.html/)
+### [[Vietsub] Tập 1028: Bản Ballad của cô gái yêu bánh](https://conanvietsub.github.io/ep/1028/)
 ### [[Vietsub] Tập 1027: Phía bên kia rèm cửa](https://admin1509.github.io/fdcvteam.blogspot.com/2021/11/vietsub-tap-1027-phia-ben-kia-rem-cua.html/)
 ### [[Vietsub] Tập 1026: Nhân chứng không thể nói](https://admin1509.github.io/fdcvteam.blogspot.com/2021/11/vietsub-tap-1026-nhan-chung-khong-noi.html/)
 ### [[Vietsub] Tập 1025: Thư khiêu chiến của Oooka Momiji (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/11/vietsub-tap-1025-thu-khieu-chien-cua.html/)

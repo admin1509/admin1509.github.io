@@ -16,7 +16,7 @@
 ### [[Vietsub] Tập 1018: Chiếc mâm cổ không thể che giấu (Phần đầu)](https://conanvietsub.github.io/ep/1018/)
 ### [[Vietsub] Tập 1017: Vụ án bắn tỉa trên Monorail (Phần cuối)](https://conanvietsub.github.io/ep/1017/)
 ### [[Vietsub] Tập 1016: Vụ án bắn tỉa trên Monorail (Phần đầu)](https://conanvietsub.github.io/ep/1016/)
-### [[Vietsub] Tập 1015: Theo dõi](https://admin1509.github.io/fdcvteam.blogspot.com/2021/08/vietsub-tap-1015-theo-doi.html/)
+### [[Vietsub] Tập 1015: Theo dõi](https://conanvietsub.github.io/ep/1015/)
 ### [[Vietsub] Tập 1014: Tiểu thuyết gia được gọi là quỷ vương](https://admin1509.github.io/fdcvteam.blogspot.com/2021/08/vietsub-tap-1014-tieu-thuyet-gia-uoc.html/)
 ### [[Vietsub] Tập 1013: Người đàn ông lụy tình](https://admin1509.github.io/fdcvteam.blogspot.com/2021/07/vietsub-tap-1013-nguoi-ong-luy-tinh.html/)
 ### [[Vietsub] Tập 1012: Hái rau trên núi và cỏ 4 lá (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/07/vietsub-tap-1012-hai-rau-tren-nui-va-co.html/)

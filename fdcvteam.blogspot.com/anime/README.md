@@ -6,7 +6,7 @@
 ### [[Vietsub] Tập 1028: Bản Ballad của cô gái yêu bánh](https://conanvietsub.github.io/ep/1028/)
 ### [[Vietsub] Tập 1027: Phía bên kia rèm cửa](https://conanvietsub.github.io/ep/1027/)
 ### [[Vietsub] Tập 1026: Nhân chứng không thể nói](https://conanvietsub.github.io/ep/1026/)
-### [[Vietsub] Tập 1025: Thư khiêu chiến của Oooka Momiji (Phần cuối)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/11/vietsub-tap-1025-thu-khieu-chien-cua.html/)
+### [[Vietsub] Tập 1025: Thư khiêu chiến của Oooka Momiji (Phần cuối)](https://conanvietsub.github.io/ep/1025/)
 ### [[Vietsub] Tập 1024: Thư khiêu chiến của Oooka Momiji (Phần đầu)](https://admin1509.github.io/fdcvteam.blogspot.com/2021/11/vietsub-tap-1024-thu-khieu-chien-cua.html/)
 ### [[Vietsub] Tập 1023: Có thể nghe thấy tiếng còi trong tiệm sách cũ 3](https://admin1509.github.io/fdcvteam.blogspot.com/2021/10/vietsub-tap-1023-co-nghe-thay-tieng-coi.html/)
 ### [[Vietsub] Tập 1022: Bảo tàng bị nguyền rủa](https://admin1509.github.io/fdcvteam.blogspot.com/2021/10/vietsub-tap-1022-bao-tang-bi-nguyen-rua.html/)

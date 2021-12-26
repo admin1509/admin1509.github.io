@@ -1,5 +1,6 @@
 # [FDCV](https://admin1509.github.io/fdcvteam.blogspot.com/)
 
+### [[Vietsub] Tập 1032: Người mẫu, Mouri Ran](https://admin1509.github.io/embed/lotus/1032-16404525260541429563508/index.html)
 ### [[Vietsub] Tập 1031: Một năm trống rỗng (Phần cuối)](https://admin1509.github.io/embed/fdcv.xyz/getvid/lotus/embed.php/VktxeEszYlJlLzBqYjl6VzhRLzNVTEVFdmtwcFVOYzczeUlBUDdXK2NxclBZa2RMQlFKa1FhejBwY0pTL3ZPaA/)
 ### [[Vietsub] Tập 1030: Một năm trống rỗng (Phần đầu)](https://admin1509.github.io/embed/fdcv.xyz/watch-ep/177/)
 ### [[Vietsub] Tập 1029: Phần học viện cảnh sát - Wild Police Story (Case. Matsuda Jinpei)](https://conanvietsub.github.io/ep/1029/)

@@ -4,7 +4,7 @@
 ###### [`Tập 1`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap1/)
 ###### [`Tập 2`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap2/)
 ###### [`Tập 3`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap3/)
-###### [`Tập 4 Bitmovin`](https://bitly.com/3COIQMp) - [`Tập 4 HDPlay`](https://bitly.com/32lcU5D)
+###### [`Tập 4`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap4/)
 ###### [`Tập 5 Bitmovin`](https://bitly.com/3x7zbit) - [`Tập 5 HDPlay`](https://bitly.com/30GJM8A)
 ###### [`Tập 6 Bitmovin`](https://bitly.com/3oNdMaD) - [`Tập 6 HDPlay`](https://bitly.com/3qXokqf)
 ###### [`Tập 7 Bitmovin`](https://bitly.com/3kVIFsa) - [`Tập 7 HDPlay`](https://bitly.com/3nBagRr)

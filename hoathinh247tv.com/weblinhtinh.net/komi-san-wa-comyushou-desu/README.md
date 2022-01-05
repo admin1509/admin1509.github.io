@@ -2,7 +2,7 @@
 #### * Lưu ý: Vui lòng nhấn tập bên dưới để xem, khi xem xong vui lòng thoát ra ngoài để xem tập khác. Thanks!!!!
 
 ###### [`Tập 1`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap1/)
-###### [`Tập 2 Bitmovin`](https://bitly.com/3cCYi3a) - [`Tập 2 HDPlay`](https://bitly.com/3kWTxWP)
+###### [`Tập 2`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap2/)
 ###### [`Tập 3 Bitmovin`](https://bitly.com/3HRGrEr) - [`Tập 3 HDPlay`](https://bitly.com/3x9Ps6t)
 ###### [`Tập 4 Bitmovin`](https://bitly.com/3COIQMp) - [`Tập 4 HDPlay`](https://bitly.com/32lcU5D)
 ###### [`Tập 5 Bitmovin`](https://bitly.com/3x7zbit) - [`Tập 5 HDPlay`](https://bitly.com/30GJM8A)

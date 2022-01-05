@@ -10,7 +10,9 @@
 ###### [`Tập 7`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap7/)
 ###### [`Tập 8`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap8/)
 ###### [`Tập 9`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap9/)
-###### [`Tập 10 Bitmovin`](https://bitmovin.com/demos/stream-test?format=hls&manifest=https://raw.githubusercontent.com/admin1509/admin1509/main/s1.animeweb.xyz/media/video-clips/anime2/03-2021/Komi-sanwa-Comyushou-desu/10/Komi-sanwa-Comyushou-desu-10.m3u8) - [`Tập 10 HDPlay`](https://hdplay.se/?HLSP2P=https://raw.githubusercontent.com/admin1509/admin1509/main/s1.animeweb.xyz/media/video-clips/anime2/03-2021/Komi-sanwa-Comyushou-desu/10/Komi-sanwa-Comyushou-desu-10.m3u8)
+###### [`Tập 10`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap10/)
+###### [`Tập 11`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap11/)
+###### [`Tập 12`](https://admin1509.github.io/hoathinh247tv.com/weblinhtinh.net/komi-san-wa-comyushou-desu/tap12/)
 
 
 ###### ![komi-san-wa-comyushou-desu-250x350](https://user-images.githubusercontent.com/75318518/142747924-fc01211b-3218-4aba-b90e-f4a1da6912cd.png)
